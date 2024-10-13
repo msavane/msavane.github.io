@@ -31,4 +31,4 @@ CTFL, Software Testing · (2011 - 2011)
 
 ### Contact
 
- **_See all of Mory’s experience_** [profile](https://www.linkedin.com/in/mory-savane-63337220/)
+ **_See all of Mory’s experience_** [profile](https://www.linkedin.com/in/mory-savané-63337220/)
